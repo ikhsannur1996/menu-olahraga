@@ -91,5 +91,3 @@ Berikut adalah daftar lengkap **7 gerakan wajib (esensial)** dan **7 gerakan ops
 - Gerakan wajib sebaiknya dilakukan terlebih dahulu karena melibatkan banyak otot secara compound.  
 - Gerakan opsional sebagai pelengkap dan variasi, baik untuk isolasi otot atau untuk mencegah kebosanan.  
 - Kombinasikan 4–5 gerakan wajib dengan 2–3 opsional per sesi latihan sekitar 1 jam.
-
-Semoga daftar ini membantu Anda susun program latihan efektif dan seimbang!
